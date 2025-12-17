@@ -1,1 +1,1 @@
-# HIT-Nsfw-Bot-Discord
+Suuport in discord : eurpowernedbyhit, mrbones0000, mrhit0000
